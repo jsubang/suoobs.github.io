@@ -1,2 +1,0 @@
-# suoobs.github.io
-lmao
